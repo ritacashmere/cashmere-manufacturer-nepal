@@ -55,8 +55,8 @@ Rita Cashmere focuses on ethical production, responsible sourcing, and long-term
 ## Contact
 
 Website: https://ritacashmere.com  
-Email: ritacashmere7@gmail.com  
-Location: Kathmandu, Nepal
+Email: info@ritacashmere.com  
+Location: 17 Man Marg, Kathmandu 44600
 phone no.  +977 9826872664
 
 ---
